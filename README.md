@@ -1,13 +1,14 @@
 # Blum - Auto Claim Bot
 
-🔗 **Referral Link**: [Blum](https://t.me/BlumCryptoBot/app?startapp=ref_4WwBGtCuHW)
+🔗 **Referral Link**: [Blum](https://t.me/blum/app?startapp=ref_F5Mw2IbzBt)
 
-## 📢 Telegram Group
+## 📢 Whatsapp Group
 
-Join our Telegram group to stay updated and get instructions on how to use this tool:
+Join our Whatsapp group to stay updated and get instructions on how to use this tool:
 
-- [Smart Airdrop](https://t.me/smartairdrop2120)
-- [Smart Airdrop - Channel](https://t.me/smartairdrop_channel)
+- [Legit Crypto Airdrop](https://chat.whatsapp.com/I510IxGK3dYFOOJGVtkdsT)
+
+Credits Goes to Smart Airdrops
 
 ## 🌟 Features
 
